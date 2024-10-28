@@ -6,5 +6,7 @@
 Cultivar é a arte de semear sonhos e colher realizações.
 
  Paixão F250 e Jetta Gli
+ 
+Falculdade e agronomia e Auto mecanica
 
 ![](https://media1.tenor.com/m/Qt0jU0BlBy8AAAAd/agroboys-agronomi.gif)
