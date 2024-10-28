@@ -1,8 +1,12 @@
 @- ✌️oi me chamo @JoãoFernando 
-- sou estudante 
+- sou estudante
+- 
 - ### 📫 entre em contato comigo
+- 
 @joaofernando438 segue lá 😜
+
 🇧🇷Agro na Veia🇧🇷
+
 Cultivar é a arte de semear sonhos e colher realizações.
 
  Paixão F250 e Jetta Gli
