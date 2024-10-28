@@ -4,4 +4,4 @@
 @joaofernando438 segue lá 😜
 🇧🇷Agro na Veia🇧🇷
 
-![.](https://tenor.com/pt-BR/view/agroboys-agronomi-boy-tractor-s-gif-4818046016825919279).
+![](https://media1.tenor.com/m/Qt0jU0BlBy8AAAAd/agroboys-agronomi.gif)
